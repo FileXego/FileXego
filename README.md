@@ -19,6 +19,7 @@ My world is built on several pillars:
 
 ### 🏃 Physical Metrics & Discipline
 > **"LUV ME LUV ME!!HATE ME HATE ME!!"**
+
 I treat physical training as a biological extension of mental discipline:
 * **Endurance:** Currently transitioning from 30min to 45min aerobic baselines (5km+).
 * **Strength:** Committed to compound movements (Bench Press, Squats, Rows).
